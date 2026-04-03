@@ -12,18 +12,7 @@ d dfv df vdfv dfvd dfv
 fb fgbfg fgn fgnfgnfgnfgn fgn
 f fgnbfghn fgnfgn fgn fgn fgnfgn
 sdvsdvsdvsdvsdv
-sdvs
-dv
-sdv
-sdv
-sd
-v
-dsv
-sd
-v
-sd
-vd
-
-ds
-s
-sd
+ác ác sadc sdcv sd csdc 
+sdc sdcsdc sdc sdc sdc sdc sdc sdc 
+sd csdc sdc sdc sdc sdc sdcsdc sdcsd
+sdc sdc sdc sdc sdc sdc sdc sdcsd csd 
